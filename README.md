@@ -1,1 +1,1 @@
-https://rRedq.github.io/rsschool-cv/
+https://rRedq.github.io/rsschool-cv/cv
